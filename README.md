@@ -1,3 +1,5 @@
-- 👋 Hi,
-- I’m Narges
+- 👋 Hi
+- I’m Narges Mousavi💖
+- computer engineering student💻
+- Iran, Tabriz🏙
 - 💫✨
