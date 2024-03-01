@@ -1,5 +1,6 @@
 - 👋 Hi
 - I’m Narges Mousavi💖
 - computer engineering student💻
+- Intrested in python , webdesign and telegrambots😍😎
 - Iran, Tabriz🏙
 - 💫✨
